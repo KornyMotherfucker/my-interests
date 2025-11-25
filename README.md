@@ -1,4 +1,4 @@
-my all current fandoms\interests! this may be a lot but im still open to finding more.
+my all current fandoms\interests! this may be quite a lot (?)  but im still open to finding more.
 
 Mouthwashing,
 
